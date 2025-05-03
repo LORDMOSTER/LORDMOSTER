@@ -1,5 +1,5 @@
 # 💫 About Me:
-I AM A STUDENT<br>
+I am SRIHARI. P.V, a Computer Science Engineering student at Nandha College of Technology with a strong passion for technology, problem-solving, and innovation. I thrive on staying up to date with the latest advancements in the tech world and continuously expanding my skill set. Dynamic in learning, I have developed unique projects that showcase my creativity and technical expertise. My strong command of English enables me to communicate ideas effectively and collaborate efficiently. I am always eager to explore new opportunities that challenge me and help me grow in the field of computer science<br>
 
 
 ## 🌐 Socials:
